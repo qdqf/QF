@@ -1,0 +1,2 @@
+# QF
+HARD LIFE
